@@ -3,4 +3,4 @@
 - 📫 semihcelikol@outlook.com
 - 🚀 https://semihcelikol.com
 
-If you want to support me you can buy a coffe https://www.buymeacoffee.com/semihc
+If you want to support me you can buy a ☕coffee https://www.buymeacoffee.com/semihc
